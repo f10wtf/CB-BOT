@@ -8,4 +8,6 @@ comes with a customisable chat message if someone puts an item you want or dont 
 
 i hope you enjoy,
 
--NOTE: THIS DOES INJECT INTO ROBLOX AND GO AGAINST TOS: USE AT YOUR OWN RISK!!!!! I SUGGEST TRADING ON AN ALT ACCOUNT.
+-NOTE: THIS DOES INJECT INTO ROBLOX AND GO AGAINST TOS
+
+please for the love of god read the instructions before crying to f10 in discord
