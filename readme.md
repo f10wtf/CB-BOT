@@ -10,4 +10,4 @@ i hope you enjoy,
 
 -NOTE: THIS DOES INJECT INTO ROBLOX AND GO AGAINST TOS
 
-please for the love of god read the instructions before crying to f10 in discord
+please for the love of god read the instructions before crying to newera in discord
