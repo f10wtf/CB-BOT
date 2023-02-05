@@ -1,4 +1,4 @@
-Hello! my name is newera, im a lua/C/C#/python programmer.
+Hello! my name is newera, im a lua/C/C#/python/java programmer.
 
 this is my newest application, CB:RO
 
